@@ -5,4 +5,4 @@ if you decide to follow us here, i suggest our other socials instead, but don't 
 
 twt: @elomightbegiant
 
-discord: @udabnthefeared
+discord: @elprimoshusband
